@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sophia-Cao
-- 👀 I’m interested in Chongqing food (hotpot).
+- 👀 I’m interested in Sichuan food (hotpot).
 - 🌱 I’m currently learning a lot of things.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
